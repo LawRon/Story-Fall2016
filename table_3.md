@@ -1,1 +1,0 @@
-* T-shirt designer for Union, Frats, Sororities, etc
